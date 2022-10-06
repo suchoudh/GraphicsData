@@ -137,3 +137,40 @@ Save wildlife..!”
 “Most people I've met who weren't kind to animal, weren't kind to people either. Kindness is kindness. Simple as that. Barbaric activities such as hunting should be consigned to the history books.”
 ― Fuad Alakbarov, Exodus 
 
+“Most people I've met who weren't kind to animal, weren't kind to people either. Kindness is kindness. Simple as that. Barbaric activities such as hunting should be consigned to the history books.”
+― Fuad Alakbarov, Exodus 
+
+“Is the deer crossing the road, or is the road crossing the forest?”
+― Freequill 
+
+“When it comes to conserving wildlife and the environment, It's more important to be outspoken, than unspoken”
+― Paul Oxton 
+
+“The diversity of life forms, so numerous that we have yet to identify most of them, is the greatest wonder on this planet.”
+― E. O. Wilson 
+
+Rural Americans greatly value animals (wild and domestic) for what they provide, and dislike them for what they take or harm.”
+― Julia Corbett, Out of the Woods: Seeing Nature in the Everyday 
+
+“I have spent hours and hours watching elephants, and to come to understand what emotional creatures they are...it's not just a species facing extinction, it's massive individual suffering.”
+― Mike Bond, The Last Savanna 
+
+“The problem is that bears are pretty smart and humans aren't: we'll move into a remote area and leave a bag of dog food on our front porch and then panic when we see a grizzly bear helping himself to a meal. p 41”
+― Bruce W. Cameron 
+
+“When the dust settles, the horses will be gone”
+― Yasmine Hamdi, Spirit of the Wind 
+
+“The best way of being kind to bears is not to be very close to them.”
+― Margaret Atwood, MaddAddam 
+
+“Dolphins and sharks are natural enemies. Dolphins are like, "Quit eating us," and sharks are like, "Stop smiling all the time, you morons.”
+― Dan Florence, Zombies Love Pizza 
+
+“When you nurture Nature, Nature nurtures you.”
+― Donald L. Hicks, Look into the stillness 
+
+“As the natural world grows smaller, so too does its intensity and the size of the window through which it may be viewed.”
+― Fennel Hudson, A Meaningful Life - Fennel's Journal - No. 1 
+
+
